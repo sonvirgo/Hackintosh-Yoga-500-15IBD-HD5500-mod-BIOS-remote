@@ -1,0 +1,1 @@
+# Hackintosh-Yoga-500-15IBD-HD5500-mod-BIOS-remote
